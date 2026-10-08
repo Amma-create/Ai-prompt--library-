@@ -34,13 +34,7 @@ Practical AI prompts and resources to help creators create faster, market smarte
 Want more ready-to-use AI prompts?
 
 👉 **Get the complete 100 AI Prompt Pack here:**
-
-[🛒 BUY THE COMPLETE AI PROMPT PACK]
-## 💎 Get the Complete AI Cartoon Story Prompt Pack
-
-Want 100 ready-to-use AI cartoon story prompts for creating kids' YouTube videos?
-
-👉 [🛒 GET THE 100 AI CARTOON STORY PROMPTS — ₦4,500](https://selar.com/a4l2839)
+👉 🛒 [BUY THE COMPLETE AI PROMPT PACK](https://selar.com/a4t1z39u5k)
 
 Perfect for:
 - 🎬 Kids' YouTube creators
