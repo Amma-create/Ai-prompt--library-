@@ -1,2 +1,3 @@
 # Ai-prompt--library-
-A collection of powerful AI prompts and creative tools for content creators and digital entrepreneurs.
+Welcome to Faeammaa AI 🚀
+Practical AI prompts and resources to help creators create faster, market smarter, and build digital products.
