@@ -1,5 +1,5 @@
 
-# 🚀 Faeammaa AI Prompt Library
+# 🚀 Faeammaa AI Prompt Libray
 
 Welcome to Faeammaa AI!
 
